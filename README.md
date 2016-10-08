@@ -1,3 +1,4 @@
+![enter image description here](http://www.capcityweb.com/capcitywebassets/themes/assets/library//images/developers.png)
 ##GRUPOS DE TI NO WHATSAPP
 
 Links:
